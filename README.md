@@ -24,7 +24,9 @@ It free tho
 
 
 
+ask me any question discord id #3799
 
+or ask me at the issue tabs
 
 this is not my cheat if there is a virus or you have question go to 
 
