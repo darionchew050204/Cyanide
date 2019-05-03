@@ -29,6 +29,3 @@ i dont know how to use skin changer yet but you can still use the default one th
 ask me any question discord id #3799
 
 or ask me at the issue tabs
-
-
-video might get taken down https://www.youtube.com/watch?v=P7A5-adT3k8
