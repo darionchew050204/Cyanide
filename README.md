@@ -22,6 +22,8 @@ the aimbot and trigger bot may not work
 you have to do the terminal step every time you close and open cs:go 
 It free tho
 
+i dont know how to use skin changer yet but you can still use the default one that the skin changer is set to 
+
 
 
 ask me any question discord id #3799
