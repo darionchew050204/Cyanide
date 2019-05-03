@@ -21,3 +21,11 @@ you have the click esc so you can use the mouse
 the aimbot and trigger bot may not work
 you have to do the terminal step every time you close and open cs:go 
 It free tho
+
+
+
+
+
+this is not my cheat if there is a virus or you have question go to https://discord.gg/rPV2Tzp 
+
+video might get taken down https://www.youtube.com/watch?v=P7A5-adT3k8
