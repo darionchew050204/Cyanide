@@ -26,6 +26,6 @@ i dont know how to use skin changer yet but you can still use the default one th
 
 to get the aimbot working in the console under smooth tab the two setteing the bottom one being hitbox they both have to be above 0 
 
-ask me any question discord id #3799
+ask me any question discord id #3799 (Discord Name Darion)
 
 or ask me at the issue tabs
